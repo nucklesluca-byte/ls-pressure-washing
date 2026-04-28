@@ -1,1 +1,0 @@
-# ls-pressure-washing
